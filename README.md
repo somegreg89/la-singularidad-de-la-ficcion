@@ -1,4 +1,5 @@
 # La Singularidad de la Ficción
+[In English](https://github.com/somegreg89/the-singularity-of-fiction)
 
 ## INTRODUCCIÓN
 
