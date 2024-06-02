@@ -48,7 +48,7 @@ Aquí está la singularidad de la ficción, un plano donde tener propiedad es co
 
 ## POSIBLES CONSECUENCIAS Y CONCLUSIONES
 
-Esto provoca lo que sería la muerte del sistema que manejaban los propietarios para mantener su flujo de dinero y por lo tanto, acumulación de riqueza (capitalismo), obligándolos a implementar modelos post-capitalistas o de plano se extingue dicho sistema en donde solía funcionar. Si se niegan a tal cosa, **corromperán los principios, la ley y potenciarán la censura, la violación de la intimidad y mucho más** para proteger los intereses de ambas partes (empresas y particulares profesionales).
+Esto provoca lo que sería la muerte del sistema que manejaban los propietarios para mantener su flujo de dinero y por lo tanto, acumulación de riqueza (capitalismo), obligándolos a implementar modelos post-capitalistas o de plano se extingue dicho sistema en donde solía funcionar. Si se niegan a tal cosa, **corromperán los principios, la ley y potenciarán la censura, la violación de la propiedad y mucho más** para proteger los intereses de ambas partes (empresas y particulares profesionales).
 
 Hay que aclarar que bajo la perspectiva de lo que se conoce como izquierda (específicamente socialista y comunista) llegar a esta singularidad implica tanto golpear a los burgueses como a los proletarios, ya que en el fenómeno del arte, el proletariado es un propietario y los mismos proletarios usan la propiedad para poder subsistir. Por el cual, no se puede proteger al proletariado y al mismo tiempo matar el capitalismo, ambos salen afectados por esta singularidad.
 
